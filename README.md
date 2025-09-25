@@ -1,6 +1,6 @@
 #### teacher-maria-centria.github.io
 
-# Stuff I like 
+# Stuff I usually like 
 
 On this website I will tell you about stuff I like 
 
